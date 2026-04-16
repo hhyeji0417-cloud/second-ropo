@@ -1,6 +1,3 @@
-[![*'s github stats](https://github-readme-stats.vercel.app/api?username=hhyeji0417)](https://github.com/hhyeji0417)
-
-
 
 # :smirk:
 ## :joy:
